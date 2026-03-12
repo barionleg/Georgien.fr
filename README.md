@@ -1,3 +1,17 @@
+<img width="240" height="240" alt="image" src="https://github.com/user-attachments/assets/3c1dde8e-66b4-4030-bd5f-9cf670b7b224" />
+
+# Georgien.fr
+
+## &
+
+## fb.me/Georgien.fr
+
+### Presents
+
+
+<img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/83b7a009-ad8e-47a2-8020-60d3735c2785" />
+
+
 # ci_temp_dond21 Retemplate
 
 ![CiT bARQ](https://github.com/user-attachments/assets/22dafa27-447a-41e3-9465-7c8a9f27b2f6)
