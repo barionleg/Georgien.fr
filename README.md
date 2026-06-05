@@ -11,6 +11,12 @@
 
 <img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/83b7a009-ad8e-47a2-8020-60d3735c2785" />
 
+# тØ Encourage our coders:
+
+https://buymeacoffee.com/cardiffeleo 
+
+<img width="70" height="70" alt="bmc_qr" src="https://github.com/user-attachments/assets/da5dc60a-2c06-410a-a479-e62f60662bbd" />
+
 
 # ci_temp_dond21 Retemplate
 
