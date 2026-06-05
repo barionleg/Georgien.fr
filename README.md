@@ -11,7 +11,7 @@
 
 <img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/83b7a009-ad8e-47a2-8020-60d3735c2785" />
 
-# тØ Encourage our coders:
+# тØ Encourage our plankton (coders, koders, me, mm):
 
 https://buymeacoffee.com/cardiffeleo 
 
